@@ -11,6 +11,7 @@ Things I liked from [workspaces.xyz](https://www.workspaces.xyz)
 
 ## Cool Gadgets
 [Cool air purifier](https://milacares.com/) from https://www.workspaces.xyz/p/135-joey-banks
+[Noho Move Topper chairs](https://noho.co/us/shop/noho-move-topper?color=Cloud&topper=Sky) from https://www.workspaces.xyz/p/288-mandy-thao
 
 
 ## Cool Tricks
